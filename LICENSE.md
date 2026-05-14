@@ -1,4 +1,4 @@
-
+StrongVPN elite Client: double-VPN & high-speed-servers offers the most advanced StrongVPN client, with double-VPN and high-speed-servers. Ideal for users who value privacy and
 
 
 
